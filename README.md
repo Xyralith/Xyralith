@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Xyralith
+- 👋 Hi, I’m Ayden (@Xyralith)
 - 😄 Pronouns: he/him/his
